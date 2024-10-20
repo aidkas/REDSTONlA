@@ -4,10 +4,5 @@
 </p>
 </p>
 <p align="center">
-one thing..
-</p>
-
-</p>
-<p align="center">
-i ship petrol , thin ice if u hate it sorry
+nothing to stalk about , sorry
 </p>
